@@ -1,1 +1,1 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=IM+Fell+DW+Pica&pause=1000&color=FFD700&width=435&lines=I+greet+you+revered+wanderer!)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=IM+Fell+DW+Pica&pause=1000&color=FFD700&width=550&lines=I+greet+you+revered+wanderer!;A+quest+for+wisdom+has+been+a+noble+endevour+since+birth+of+mankind.;Yet+i+doubt+you+would+find+any+here.;I+bid+you+farewell+curios+one%2C+and+may+God+light+your+path.)](https://git.io/typing-svg)
